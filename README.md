@@ -1,1 +1,1 @@
-Junior at Stevens Institute of Technology
+Stevens Institute of Technology Graduate
